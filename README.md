@@ -11,5 +11,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 Você pode entrar em contato comigo 📫
 samantha.pangracio@escola.pr.gov.br
 
-![](https://giphy.com/gifs/love-heart-heartbreak-vLbUtC258mSzQJGr1)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2Z4bHQ1cGY4Ym9xeXNzeHBrb3hyMjR0MDE0M2l2NXlvZ3ZrY3JqbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/vLbUtC258mSzQJGr1m/giphy.webp)
 
